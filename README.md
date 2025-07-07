@@ -22,4 +22,4 @@
 
 如果你正在寻找一个免费的、高清的日本AV免费在线观看平台，试试我们推荐的这些站点吧。这里有最新、最热的影片资源，最流畅的播放体验，无广告、无水印，保证你可以尽情享受每一部精彩的影片。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vyvy0250707/vyvy12 ）</span>
